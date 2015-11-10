@@ -9,8 +9,11 @@ When in doubt, not worrying is better than worrying.
 - Enjoy life.
 Find pleasure in every detail.
 
-- Be kind.
+- Be kind to others.
 Make people feel appreciated.
+
+- Don't take others' kindness for granted.
+Show your gratitude, with words and actions.
 
 - Don’t take anything personally.
 The hurtful things people say nearly always have far more to do with their own unhappiness than anything else.
@@ -19,7 +22,7 @@ The hurtful things people say nearly always have far more to do with their own u
 Be honest, don’t lie, only promise what you can keep.
 
 - Know when to accept help.
-You might be able to do most things best yourself, but not everything.
+You might be able to do most things best yourself, but not everything, and sometimes it's impossible to know in advance.
 
 - Don’t make assumptions.
 Don’t assume you know what someone is thinking or why they’re acting like they are.
