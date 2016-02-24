@@ -27,5 +27,8 @@ You might be able to do most things best yourself, but not everything, and somet
 - Don’t make assumptions.
 Don’t assume you know what someone is thinking or why they’re acting like they are.
 
+- Listen well and think before talking.
+Don't talk for others. Don't give unsolicited explanations. 
+
 - Do your best.
 Realizing that your best one one day is not as good as your best on another day.
