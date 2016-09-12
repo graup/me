@@ -4,10 +4,13 @@ Roughly in (decreasing) order of importance.
 This is a work in progress.
 
 - Don’t worry.
-When in doubt, not worrying is better than worrying.
+When in doubt, not worrying is better than worrying. Not worrying too much gives you peace of mind and opportunities to experience new things.
 
 - Enjoy life.
-Find pleasure in every detail.
+Find pleasure in every detail. Don't complain about small things.
+
+- Question yourself.
+Practice self-awareness and self-reflection. Not everything you think is the right or only way to look at things.
 
 - Be kind to others.
 Make people feel appreciated.
