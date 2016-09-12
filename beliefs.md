@@ -18,13 +18,13 @@ Make people feel appreciated.
 - Don't take others' kindness for granted.
 Show your gratitude, with words and actions.
 
-- Don’t take anything personally.
+- Don’t take everything personally.
 The hurtful things people say nearly always have far more to do with their own unhappiness than anything else.
 
 - Be impeccable with your word.
 Be honest, don’t lie, only promise what you can keep.
 
-- Know when to accept help.
+- Accept help.
 You might be able to do most things best yourself, but not everything, and sometimes it's impossible to know in advance.
 
 - Don’t make assumptions.
