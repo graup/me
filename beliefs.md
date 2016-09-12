@@ -1,5 +1,7 @@
 # Personal beliefs
 
+Points that I strive to live by.
+
 Roughly in (decreasing) order of importance.
 This is a work in progress.
 
