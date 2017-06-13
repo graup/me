@@ -29,6 +29,9 @@ The hurtful things people say nearly always have far more to do with their own u
 - Be impeccable with your word.
 Be honest, don’t lie, only promise what you can keep.
 
+- Do your best.
+Realizing that your best one one day is not as good as your best on another day.
+
 - Accept help.
 You might be able to do most things best yourself, but not everything, and sometimes it's impossible to know in advance.
 
@@ -37,9 +40,6 @@ Don’t assume you know what someone is thinking or why they’re acting like th
 
 - Listen well and think before talking.
 Don't talk for others. Don't give unsolicited explanations. 
-
-- Do your best.
-Realizing that your best one one day is not as good as your best on another day.
 
 - Say No.
 Don't agree to everything just to avoid conflict.
