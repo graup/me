@@ -30,7 +30,7 @@ The hurtful things people say nearly always have far more to do with their own u
 Be honest, don’t lie, only promise what you can keep.
 
 - Do your best.
-Realizing that your best one one day is not as good as your best on another day.
+Realizing that your best on one day is not as good as your best on another day.
 
 - Accept help.
 You might be able to do most things best yourself, but not everything, and sometimes it's impossible to know in advance.
