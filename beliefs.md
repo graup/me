@@ -17,11 +17,18 @@ Find pleasure in every detail. Don't complain about small things.
 - Question yourself.
 Practice self-awareness and self-reflection. Not everything you think is the right or only way to look at things.
 
-- Show gratitude and empathy.
-Don't take it for granted. Show it with words and actions.
-
 - Be kind to others.
 Make people feel appreciated.
+
+- Show gratitude.
+Don't take it for granted. Show it with words and actions.
+
+- Practice empathy instead of pity.
+Struggling people rarely need you to give them a solution. They just need you to listen and care.
+
+- Practice good faith.
+When you're having a conversation, try to truly listen and understand another one's viewpoint.
+Without playing tricks, everybody shall struggle towards the truth, which nobody holds completely.
 
 - Don’t take everything personally.
 The hurtful things people say nearly always have far more to do with their own unhappiness than anything else.
