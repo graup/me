@@ -5,48 +5,48 @@ Points that I strive to live by.
 Roughly in (decreasing) order of importance.
 This is a work in progress.
 
-- Say Yes.
+- **Say Yes.**
 Maximize opportunities for great outcomes.
 
-- Don’t worry.
+- **Don’t worry.**
 When in doubt, not worrying is better than worrying. Not worrying too much gives you peace of mind and opportunities to experience new things.
 
-- Enjoy life.
+- **Enjoy life.**
 Find pleasure in every detail. Don't complain about small things.
 
-- Question yourself.
-Practice self-awareness and self-reflection. Not everything you think is the right or only way to look at things.
+- **Question yourself.**
+Practice self-awareness and self-reflection. Not everything you think is the right or only way to look at things. Everyone is biased in a way.
 
-- Be kind to others.
+- **Be kind to others.**
 Make people feel appreciated.
 
-- Show gratitude.
+- **Show gratitude.**
 Don't take it for granted. Show it with words and actions.
 
-- Practice empathy instead of pity.
+- **Practice empathy instead of pity.**
 Struggling people rarely need you to give them a solution. They just need you to listen and care.
 
-- Practice good faith.
+- **Practice good faith.**
 When you're having a conversation, try to truly listen and understand another one's viewpoint.
 Without playing tricks, everybody shall struggle towards the truth, which nobody holds completely.
 
-- Don’t take everything personally.
+- **Don’t take everything personally.**
 The hurtful things people say nearly always have far more to do with their own unhappiness than anything else.
 
-- Be impeccable with your word.
+- **Be impeccable with your word.**
 Be honest, don’t lie, only promise what you can keep.
 
-- Do your best.
+- **Do your best.**
 Realizing that your best on one day is not as good as your best on another day.
 
-- Accept help.
+- **Accept help.**
 You might be able to do most things best yourself, but not everything, and sometimes it's impossible to know in advance.
 
-- Don’t make assumptions.
+- **Don’t make assumptions.**
 Don’t assume you know what someone is thinking or why they’re acting like they are.
 
-- Listen well and think before talking.
+- **Listen well and think before talking.**
 Don't talk for others. Don't give unsolicited explanations. 
 
-- Say No.
+- **Say No.**
 Don't agree to everything just to avoid conflict.
