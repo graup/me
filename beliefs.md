@@ -17,8 +17,8 @@ Find pleasure in every detail. Don't complain about small things.
 - **Question yourself.**
 Practice self-awareness and self-reflection. Not everything you think is the right or only way to look at things. Everyone is biased in a way.
 
-- **Be kind to others.**
-Make people feel appreciated.
+- **Be kind.**
+Go out of your way to make people feel appreciated.
 
 - **Show gratitude.**
 Don't take it for granted. Show it with words and actions.
