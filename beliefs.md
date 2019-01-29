@@ -30,6 +30,9 @@ Struggling people rarely need you to give them a solution. They just need you to
 When you're having a conversation, try to truly listen and understand another one's viewpoint.
 Without playing tricks, everybody shall struggle towards the truth, which nobody holds completely.
 
+- **Don't talk for others.**
+Let them speak for themselves. Don't give unsolicited explanations. 
+
 - **Don’t take everything personally.**
 The hurtful things people say nearly always have far more to do with their own unhappiness than anything else.
 
@@ -44,9 +47,6 @@ You might be able to do most things best yourself, but not everything, and somet
 
 - **Don’t make assumptions.**
 Don’t assume you know what someone is thinking or why they’re acting like they are.
-
-- **Listen well and think before talking.**
-Don't talk for others. Don't give unsolicited explanations. 
 
 - **Say No.**
 Don't agree to everything just to avoid conflict.
