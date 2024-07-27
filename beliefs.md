@@ -6,10 +6,10 @@ Roughly in (decreasing) order of importance.
 This is a work in progress.
 
 - **Say Yes.**
-Maximize opportunities for great outcomes.
+Maximize opportunities for great outcomes. You cannot know when lightning will strike, but you can try to be on top of the mountain.
 
 - **Don’t worry.**
-When in doubt, not worrying is better than worrying. Not worrying too much gives you peace of mind and opportunities to experience new things.
+Not worrying too much gives you peace of mind and opportunities to experience new things.
 
 - **Enjoy life.**
 Find pleasure in every detail. Don't complain about small things.
@@ -21,17 +21,17 @@ Practice self-awareness and self-reflection. Not everything you think is the rig
 Go out of your way to make people feel appreciated.
 
 - **Show gratitude.**
-Don't take it for granted. Show it with words and actions.
+Don't take it for granted. Show your appreciation with words and actions.
 
 - **Practice empathy instead of pity.**
-Struggling people rarely need you to give them a solution. They just need you to listen and care.
+Struggling people rarely need you to give them a solution. They need you to listen and care, foremost about their feelings.
 
 - **Practice good faith.**
-When you're having a conversation, try to truly listen and understand another one's viewpoint.
+When you're having a conversation, try to listen and understand another one's viewpoint truly.
 Without playing tricks, everybody shall struggle towards the truth, which nobody holds completely.
 
 - **Don't talk for others.**
-Let them speak for themselves. Don't give unsolicited explanations. 
+Ask questions, let them speak for themselves. Don't give unsolicited explanations.
 
 - **Don’t take everything personally.**
 The hurtful things people say nearly always have far more to do with their own unhappiness than anything else.
